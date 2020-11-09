@@ -1,0 +1,3 @@
+Hi! I'm currently a year 2 student in Singapoer Polytechnic as of 2020. I have chosen to take up this module as I love to build and create things that benefit people around me. It gives me a sense of accomplisment to be able to help someone in need by creating something first in my mind then bring it into reality.
+
+Its an honor to be able to be given this opportunity to be able to build something for *real* at a polytechnic level.
